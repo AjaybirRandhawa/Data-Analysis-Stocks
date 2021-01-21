@@ -15,8 +15,8 @@
 👤 **Ajaybir Randhawa**
 
 * Website: ajaybir.randhawa.github.io
-* Github: [@Ajaybir Randhawa](https://github.com/Ajaybir Randhawa)
-* LinkedIn: [@Ajaybir Randhawa](https://linkedin.com/in/Ajaybir Randhawa)
+* Github: [@Ajaybir Randhawa](https://github.com/AjaybirRandhawa)
+* LinkedIn: [@Ajaybir Randhawa](https://linkedin.com/in/AjaybirRandhawa)
 
 ## Show your support
 
